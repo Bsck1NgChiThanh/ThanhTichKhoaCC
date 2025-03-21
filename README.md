@@ -10,6 +10,6 @@
 |2020|[x](https://drive.google.com/file/d/1ICeCylVByA1y0KUflZG2UspVbQ0cLuTl/view?usp=sharing) | x |   |
 |2019|[x](https://drive.google.com/file/d/1gRuMhkuMmMd1CsKPhVOIUGqofGzsZA-d/view?usp=sharing) |   |   |
 |2018|[x](https://drive.google.com/file/d/1c3fAKNkgwXae0l9Aaj70bTmRI1KeAyTc/view?usp=sharing) | x |[x](https://drive.google.com/file/d/1P92-GRzNqRZCFuDBm7AdIOjYdIl5stjV/view?usp=sharing)|
-|2017|[x](https://drive.google.com/file/d/1n2MSqmh-nd7Oo2L7sk4L517d_tj_brV2/view?usp=sharing) | x |   |   |   |TT điển hình TT 2015-2017
+|2017|[x](https://drive.google.com/file/d/1n2MSqmh-nd7Oo2L7sk4L517d_tj_brV2/view?usp=sharing) | x |   |   |   |TT điển hình TT 2015-2017 (GK BV)
 |2016|[x](https://drive.google.com/file/d/11Lu7xpX3S-z3WfWw-GvEjS_P4tL3EO4z/view?usp=sharing) | x | x |
 |2015|[x](https://drive.google.com/file/d/1LD3cOSyMMncogk0atIVOVYUDWxfs-rWc/view?usp=sharing) | x |   |
