@@ -27,6 +27,11 @@
     - Đạt 01 giải nhì.
     - Đạt 01 giải ba.
     - Đạt 01 Giải khuyết khích.
+  - Năm 2018:
+    - Đạt 01 giải nhất.
+    - Đạt 01 giải nhì.
+    - Đạt 01 Giải ba.
+ 
   - Năm 2020:
     - Đạt 01 giải nhất: Võ Cẩm Chiêu.
   - Năm 2022:
