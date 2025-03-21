@@ -19,6 +19,10 @@
   - Năm 2015:
     - Đạt 01 giải nhất.
     - Đạt 01 Giải khuyết khích.
+  - Năm 2016:
+    - Đạt 01 giải nhất.
+    - Đạt 01 giải nhì.
+    - Đạt 01 Giải khuyết khích.
   - Năm 2020:
     - Đạt 01 giải nhất: Võ Cẩm Chiêu.
   - Năm 2022:
@@ -31,6 +35,7 @@
 
 ### Hội thi khác
 - Hội thi “Nâng cao kỹ năng giao tiếp ứng xử” (Lâm Kim Chi, Dương Diễm Hương, Nguyễn Trung Kiên)
+  - Năm 2016: Đạt giải nhì.
   - Năm 2024: Đạt 01 giải khuyết khích.
 - Thi dân vận khéo cấp huyện
   - Năm 2023: đạt giải nhì đồng đội (Thang Hoa Xuân tham gia)
