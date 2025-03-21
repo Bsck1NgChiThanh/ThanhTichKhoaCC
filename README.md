@@ -45,7 +45,8 @@
 ### Hội thi khác
 - Hội thi “Nâng cao kỹ năng giao tiếp ứng xử” (Lâm Kim Chi, Dương Diễm Hương, Nguyễn Trung Kiên)
   - Năm 2016: Đạt giải nhì.
-  - Năm 2024: Đạt 01 giải khuyết khích.
+  - Năm 2023: Đạt giải phong trào
+  - Năm 2024: Đạt giải khuyết khích.
 - Thi dân vận khéo cấp huyện
   - Năm 2023: đạt giải nhì đồng đội (Thang Hoa Xuân tham gia)
 
