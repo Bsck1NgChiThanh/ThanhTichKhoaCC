@@ -13,3 +13,5 @@
 |2017|[x](https://drive.google.com/file/d/1n2MSqmh-nd7Oo2L7sk4L517d_tj_brV2/view?usp=sharing) | x |   |   |   |TT điển hình TT 2015-2017 (GK BV)
 |2016|[x](https://drive.google.com/file/d/11Lu7xpX3S-z3WfWw-GvEjS_P4tL3EO4z/view?usp=sharing) | x | x |
 |2015|[x](https://drive.google.com/file/d/1LD3cOSyMMncogk0atIVOVYUDWxfs-rWc/view?usp=sharing) | x |   |
+
+[Tập thể KHOA_BKUBNDT điển hình tiên tiến giai đoạn 2020-2025](https://github.com/user-attachments/files/19383156/M.u.t.p.th.KHOA_BKUBNDT.di.n.hinh.tien.ti.n.giai.do.n.2020-2025.docx)
