@@ -31,9 +31,9 @@
     - Đạt 01 giải nhất.
     - Đạt 01 giải nhì.
     - Đạt 01 Giải ba.
- 
-  - Năm 2020:
+  - Năm 2019:
     - Đạt 01 giải nhất: Võ Cẩm Chiêu.
+    - Đạt 01 giải nhì:
   - Năm 2022:
     - Đạt 01 giải nhất: Thang Hoa Xuân.
   - Năm 2023:
