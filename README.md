@@ -1,6 +1,7 @@
 # Thành tích Khoa CC-HSTC-CĐ
 
 |Năm|LĐTT|LĐXS|BKUBND Tỉnh|BKTT|HCLĐ|
+|-- |--  |--  |--         |--  |--  |
 |2025||
 |2024|[x]()
 |2023|[x]()
