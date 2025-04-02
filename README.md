@@ -54,7 +54,7 @@
   - Năm 2024: Đạt giải khuyết khích.
 - Thi dân vận khéo cấp huyện
   - Năm 2023: đạt giải nhì đồng đội (Thang Hoa Xuân tham gia)
-- Bóng chuyền nữ mừng ngày thành lập đoàn 26/3/ - 26/3/2025 đạt **giải khuyết khích**
+- Bóng chuyền nữ mừng 94 năm ngày thành lập đoàn 26/3/1931 - 26/3/2025 đạt **giải khuyết khích**
 
 ### Tổ công đoàn:
 - Năm 2023: Tổ công đoàn Hoàn thành xuất sắc nhiệm vụ
