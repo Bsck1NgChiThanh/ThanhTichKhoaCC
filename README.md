@@ -15,6 +15,11 @@
 |2015|[x](https://drive.google.com/file/d/1LD3cOSyMMncogk0atIVOVYUDWxfs-rWc/view?usp=sharing) | x |   |
 
 ## Thành tích khác:
+
+### Hội nghị điển hình tiên tiến:
+  - Giai đoạn 2020-2025:
+    - BV khen theo Qđ số .../QĐBV ngày tháng năm 2025. [Bài tham luận](https://docs.google.com/document/d/e/2PACX-1vRYALapNcC2vmVUTbXgG9QyhZn-wGsnuQ_snGxC0yRn9Lgp16v_PtTOB2puXJxALA/pub) 
+
 ### Hội thi “Điều dưỡng, nữ hộ sinh giỏi thanh lịch”
   - Năm 2015:
     - Đạt 01 giải nhất.
@@ -49,6 +54,7 @@
   - Năm 2024: Đạt giải khuyết khích.
 - Thi dân vận khéo cấp huyện
   - Năm 2023: đạt giải nhì đồng đội (Thang Hoa Xuân tham gia)
+- Bóng chuyền nữ mừng ngày thành lập đoàn 26/3/ - 26/3/2025 đạt **giải khuyết khích**
 
 ### Tổ công đoàn:
 - Năm 2023: Tổ công đoàn Hoàn thành xuất sắc nhiệm vụ
