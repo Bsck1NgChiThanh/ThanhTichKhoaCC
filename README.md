@@ -61,4 +61,3 @@
 - Năm 2020, 2021, 2022, 2024: Tổ công đoàn Hoàn thành tốt nhiệm vụ
 
 
-[Tập thể KHOA_BKUBNDT điển hình tiên tiến giai đoạn 2020-2025](https://github.com/user-attachments/files/19383156/M.u.t.p.th.KHOA_BKUBNDT.di.n.hinh.tien.ti.n.giai.do.n.2020-2025.docx)
