@@ -2,7 +2,7 @@
 
 |Năm|LĐTT|LĐXS|BKUBND Tỉnh|BKTT|HCLĐ hạng 3|Điển hình tiên tiến|
 |-- |--  |--  |--         |--  |--         |--                 |
-|2025||||||TT điển hình TT giai đoạn 2020-2025
+|2025||||||[Bằng khen UBND Tỉnh về TT điển hình TT giai đoạn 2020-2025](https://bsthanh-my.sharepoint.com/:w:/g/personal/laptopxiaomi_bsthanh_onmicrosoft_com/EfYeme1LuHxPhACKNSn15TYBwL-KKiZe7iSyKT9hhspa9g?e=TpiGMB) Theo Qđ sô  
 |2024|[x](https://drive.google.com/file/d/1tUla8eosFwisuMrbftztzUJzTrpQkyrT/view?usp=sharing) |[x]()|   |   |   |Kết quả của khoa: HTXSNV, tại Quyết định số 217/QĐ-BV, ngày 18/12/2024 của Giám đốc Bệnh viện Đa khoa Đầm Dơi.
 |2023|[x](https://drive.google.com/file/d/1mtNtPfnZROcgph8QGNaQU0pRX0NssUhn/view?usp=sharing) |[x](https://drive.google.com/file/d/13X7q3qQlreivF-AygUiC2WDxc4W35xI_/view?usp=sharing)|   |
 |2022|[x](https://drive.google.com/file/d/1L8hYa2fzH1_7nbB-1JkWND4Sbrng_DoE/view?usp=sharing) |[x](https://drive.google.com/file/d/1sD01-QSpwabTLEt47vP9XkdkR6x6XIxJ/view?usp=sharing)|   |
