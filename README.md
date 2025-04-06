@@ -20,7 +20,7 @@
   - Giai đoạn 2020-2025:
     - BV khen theo Qđ số .../QĐBV ngày tháng năm 2025. [Bài tham luận](https://docs.google.com/document/d/e/2PACX-1vRYALapNcC2vmVUTbXgG9QyhZn-wGsnuQ_snGxC0yRn9Lgp16v_PtTOB2puXJxALA/pub) 
 
-### Hội thi “Điều dưỡng, nữ hộ sinh giỏi thanh lịch”
+### Hội thi “Điều dưỡng, nữ hộ sinh giỏi thanh lịch” (Thang Hoa Xuân giành 2 giải nhất năm 2019, 2022)
   - Năm 2015:
     - Đạt 01 giải Nhì: Thang Hoa Xuân
     - Đạt 01 Giải khuyết khích.
