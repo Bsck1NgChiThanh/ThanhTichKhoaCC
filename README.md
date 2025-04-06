@@ -22,25 +22,27 @@
 
 ### Hội thi “Điều dưỡng, nữ hộ sinh giỏi thanh lịch”
   - Năm 2015:
-    - Đạt 01 giải nhất.
+    - Đạt 01 giải Nhì: Thang Hoa Xuân
     - Đạt 01 Giải khuyết khích.
   - Năm 2016:
-    - Đạt 01 giải nhất.
     - Đạt 01 giải nhì.
+    - Đạt 01 giải ba: Thang Hoa Xuân
     - Đạt 01 Giải khuyết khích.
   - Năm 2017:
-    - Đạt 01 giải nhì.
+    - Đạt 01 giải nhì: Thang Hoa Xuân
     - Đạt 01 giải ba.
     - Đạt 01 Giải khuyết khích.
   - Năm 2018:
     - Đạt 01 giải nhất.
-    - Đạt 01 giải nhì.
+    - Đạt 01 giải nhì: Thang Hoa Xuân
     - Đạt 01 Giải ba.
   - Năm 2019:
-    - Đạt 01 giải nhất: Võ Cẩm Chiêu.
+    - Đạt 01 giải nhất: Thang Hoa Xuân
     - Đạt 01 giải nhì:
   - Năm 2020:
-    - Đạt 01 giải nhất: Thang Hoa Xuân.
+    - Đạt 01 giải nhất: Võ Cẩm Chiêu.
+  - Năm 2022:
+    - Đạt 01 giải nhất: Thang Hoa Xuân
   - Năm 2023:
     - Đạt 01 giải nhì: Lê Minh Trí.
     - Đạt 01 giải khuyết khích: Dương Diễm Hương.
