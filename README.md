@@ -3,7 +3,7 @@
 |Năm|LĐTT|LĐXS|BKUBND Tỉnh|BKTT|HCLĐ hạng 3|Điển hình tiên tiến|
 |-- |--  |--  |--         |--  |--         |--                 |
 |2025||||||[Bằng khen UBND Tỉnh về TT điển hình TT giai đoạn 2020-2025](https://bsthanh-my.sharepoint.com/:w:/g/personal/laptopxiaomi_bsthanh_onmicrosoft_com/EfYeme1LuHxPhACKNSn15TYBwL-KKiZe7iSyKT9hhspa9g?e=TpiGMB) Theo Qđ số  
-|2024|[x](https://drive.google.com/file/d/1tUla8eosFwisuMrbftztzUJzTrpQkyrT/view?usp=sharing) |[x]()|   |   |   |Kết quả của khoa: HTXSNV, tại Quyết định số 217/QĐ-BV, ngày 18/12/2024 của Giám đốc Bệnh viện Đa khoa Đầm Dơi.
+|2024|[x](https://drive.google.com/file/d/1tUla8eosFwisuMrbftztzUJzTrpQkyrT/view?usp=sharing) |[x]()|   |   |   |Kết quả của khoa: HTXSNV, tại Quyết định số 217/QĐ-BV, ngày 18/12/2024 của Giám đốc Bệnh viện Đa khoa Đầm Dơi, [hạng nhất khối điều trị Quyết định số 32/QĐ-BV ngày 17/3/2025](https://raw.githubusercontent.com/Bsck1NgChiThanh/ThanhTichKhoaCC/refs/heads/main/H%E1%BA%A1ng%20nh%E1%BA%A5t.jpg)
 |2023|[x](https://drive.google.com/file/d/1mtNtPfnZROcgph8QGNaQU0pRX0NssUhn/view?usp=sharing) |[x](https://drive.google.com/file/d/13X7q3qQlreivF-AygUiC2WDxc4W35xI_/view?usp=sharing)|   |
 |2022|[x](https://drive.google.com/file/d/1L8hYa2fzH1_7nbB-1JkWND4Sbrng_DoE/view?usp=sharing) |[x](https://drive.google.com/file/d/1sD01-QSpwabTLEt47vP9XkdkR6x6XIxJ/view?usp=sharing)|   |
 |2021|[x](https://drive.google.com/file/d/1pE1UkJyqRKgTuYETerBZRUkYYu5OO6mj/view?usp=sharing) |[x](https://drive.google.com/file/d/1rnsaEs2DJ5ef2te0LHX4PdgZp7zZCc_K/view?usp=sharing)|[x](https://drive.google.com/file/d/1boQJBLZcTzMUZBgUR3Mq3AMimfHQQRUo/view?usp=sharing)|
