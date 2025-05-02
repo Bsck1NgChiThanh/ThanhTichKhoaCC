@@ -18,7 +18,7 @@
 
 ### Hội nghị điển hình tiên tiến:
   - Giai đoạn 2020-2025:
-    - BV khen theo Qđ số .../QĐBV ngày tháng năm 2025. [Bài tham luận](https://docs.google.com/document/d/e/2PACX-1vRYALapNcC2vmVUTbXgG9QyhZn-wGsnuQ_snGxC0yRn9Lgp16v_PtTOB2puXJxALA/pub) 
+    - BKUBND Tỉnh theo Qđ số [728/QĐ-UBND ngày 17 tháng 4 năm 2025](https://bsthanh-my.sharepoint.com/:b:/g/personal/laptopxiaomi_bsthanh_onmicrosoft_com/ESTK8cgTuNpMjYb3EtdOw7EBdcG4BMQoUmSed99FrQcKkw?e=FzagfP).  
 
 ### Hội thi “Điều dưỡng, nữ hộ sinh giỏi thanh lịch” (Thang Hoa Xuân giành 2 giải nhất năm 2019, 2022)
   - Năm 2015:
