@@ -64,10 +64,12 @@
 
 ### Sáng kiến Khoa:
 #### Năm 2015:
-- Có 1 đề tài NCKH “Nghiên cứu tình hình bệnh tử vong tại Bệnh viện ĐKKV Đầm Dơi trong 5 năm từ 2009 đến 2013” và 01 sáng kiến: “ Xử lý dây máy thở bằng hệ thống AIR trung tâm ”  cấp Bệnh viên.
+- Có 1 đề tài NCKH “Nghiên cứu tình hình bệnh tử vong tại Bệnh viện ĐKKV Đầm Dơi trong 5 năm từ 2009 đến 2013”
+- Có 01 sáng kiến: “ Xử lý dây máy thở bằng hệ thống AIR trung tâm ”  cấp Bệnh viên.
 
 #### Năm 2016:
-- Có 01 đề tài NCKH “Khảo sát tai biến mạch máu não do tăng huyết áp điều trị tại Bệnh viện đa khoa Đầm Dơi từ năm 2013 đến 2015” và 02 sáng kiến: “Phao hơi chống loét” và “Hệ thống rữa dạ dày kín, cải tiến” được công nhận theo Quyết định số 03/QĐ-HĐSK ngày 21/12/2016 Về việc Công nhận sáng kiến cấp cơ sở năm 2016.
+- Có 01 đề tài NCKH “Khảo sát tai biến mạch máu não do tăng huyết áp điều trị tại Bệnh viện đa khoa Đầm Dơi từ năm 2013 đến 2015”
+- Có 02 sáng kiến: “Phao hơi chống loét” và “Hệ thống rữa dạ dày kín, cải tiến” được công nhận theo Quyết định số 03/QĐ-HĐSK ngày 21/12/2016 Về việc Công nhận sáng kiến cấp cơ sở năm 2016.
 
 #### Năm 2017:
 - Có 2 đề tài NCKH: “Khảo sát kiến thức của bệnh nhân về tăng huyết áp đến khám và điều trị tại khoa Cấp cứu – Hồi sức tích cực – Chống độc Bệnh viện ĐK Đầm Dơi từ 31/3/2017 đến 31/7/2/17” và “Khảo sát sự hài lòng người bệnh và người nuôi bệnh điều trị nội trú tại khoa CC-HSTC-CĐ và nội tim mạch lão học Bệnh viện ĐK Đầm Dơi năm 2017”.
