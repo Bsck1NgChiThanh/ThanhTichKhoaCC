@@ -120,4 +120,4 @@
   - Sáng kiến 3: “Giải pháp rút ngắn thời gian ra lẻ thuốc cho bệnh nhân nội trú”, giúp phân chia thuốc cho bệnh nhân nội trú được nhanh hơn, tiếc kiệm thời gian làm việc, phạm vi sáng kiến nhân rộng trong toàn Bệnh viện.
   - Sáng kiến 4: “Đo áp lực bóng chèn nội khí quản bằng đồng hồ máy đo huyết áp cải tiến”, giúp bơm bóng chèn vừa đủ áp lực hạn chế tổn thương cho đường thở trên bệnh nhân có đặt nội khí quản, phạm vi sáng kiến nhân rộng trong toàn Bệnh viện.
 
-#### Năm 2025:
+## [TỔNG HỢP THÀNH TÍCH KHOA CC HSTC CĐ](https://docs.google.com/spreadsheets/d/e/2PACX-1vRmskBdQTXSRqdOUZzQMZG_PsMtYt_VUQhH6wmgpBuhwMi90y3TVtDRvXisrPPnSg/pubhtml)
